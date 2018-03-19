@@ -1,12 +1,12 @@
 
 
-##Aveda
+## Aveda
 
 ![img](WechatIMG87449.jpeg)
 
 
 
-##the body shop生姜防脱洗发水
+## the body shop生姜防脱洗发水
 
 ![WechatIMG87452](WechatIMG87452.jpeg)
 
@@ -30,6 +30,6 @@
 
 
 
-##lush海盐防脱
+## lush海盐防脱
 
 ![img](WechatIMG87493.jpeg)
